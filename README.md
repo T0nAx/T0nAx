@@ -7,7 +7,7 @@
 
 -Here are some ideas to get you started:
 
--Actualmente sigo perfecccionando mis habilidades como analista con proyectos
+-Actualmente sigo perfecccionando mis habilidades como analista con proyectos ficticios
 
 -Me dirijo Estoy en la búsqueda de oportunidades laborales para cambiar de profesión a la industria TI para proporcionar respuestas y soluciones con datos para organizaciones.
 
